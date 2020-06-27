@@ -11,3 +11,7 @@ Luna Lovegood was born on the 13th of February 1981. She is the daughter of Xeno
 * can see thestrals
 * direct
 * honest 
+
+Luna said:
+
+> My favorate book ist 'Phantastic Beasts and Where to Find Them'
